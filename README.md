@@ -1,4 +1,4 @@
-# 👋 Hi, I’m @ZeBarnabeMane
+# 👋 Hi, I’m Ze Barnabe
 - 👀 I’m interested in Quantum Physics
 - 🌱 I’m currently learning Quantum Physics
 - 📫 How to reach me ... here!
